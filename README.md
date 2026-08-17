@@ -1,5 +1,6 @@
-<img width="400" height="400" alt="IMG_0063 (1)" src="https://github.com/user-attachments/assets/f8866d96-b192-4fde-8e30-7d0190e4425f" />
+<img src="https://github.com/user-attachments/assets/8600e603-029b-4631-9255-9c9018ba05ee" width="300" alt="Logo">
 
-wip
-
+wip . 
 ^^ art credit [kibneys](https://www.instagram.com/kibneys)
+
+
