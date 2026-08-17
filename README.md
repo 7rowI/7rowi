@@ -2,7 +2,6 @@
 
 🟢online 🌙offtab ⛔afk/asleep
 
-wip . 
 ^^ art credit [kibneys](https://www.instagram.com/kibneys)
 
 
